@@ -16,9 +16,6 @@ I do NOT support any malicious use of this software. This is for educational pur
 
 
 
-Q: Why file uploaded on other website?
-
-A: Because of the limitation of uploading file size on github.
 
 ## Features
 𝗙𝗶𝗹𝗲 𝗠𝗮𝗻𝗮𝗴𝗲𝗿
